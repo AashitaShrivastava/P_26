@@ -1,0 +1,1 @@
+Whisk milk and 5 tablespoons sugar together in a saucepan over low heat; heat just until warmed and sugar has dissolved. Remove from heat and whisk eggs into milk mixture. Pour caramel syrup into an 8x8-inch baking dish. Pour egg-milk mixture over syrup.
